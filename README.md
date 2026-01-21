@@ -10,7 +10,7 @@ I don't have any license. I'm just as happy to find other open repositories that
 
 I might also be old school, but i have s blog as well.
 
-jonastheitguy.con
+jonastheitguy.com
 
 
 Best Regards 
